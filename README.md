@@ -1,6 +1,6 @@
 -  @be.wehr, 23y 
 -  computer science and physics student 
--  vb fullstack
+-  ancient languages
 -  german and english
 -  joji fan
 -  fun fact: neurodivergent
